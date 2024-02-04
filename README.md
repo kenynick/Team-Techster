@@ -1,3 +1,5 @@
+{https://flat-story-5be.notion.site/TeamTechster-Ecogreen-2553c51a24254d63942f066b0c4ad0da?pvs=4}
+
 What the project does? 
 
 Ecogreen seeks to link agropreneurs with ready markets while ensuring safety and traceability of product origins and history. It also seeks to train participants in green technologies by keeping them abreast with emerging trends hence ensuring economic sustainability as well.
